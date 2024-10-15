@@ -1,1 +1,1 @@
-# Q1-SW1-DeGuzman-VitoAntonio
+# Q1-Quiz1-DeGuzman-VitoAntonio
